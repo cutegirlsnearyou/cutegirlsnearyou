@@ -1,14 +1,14 @@
 <p align="center">
 ˖        ˚      ♩♩♩     𓈒  𓈒  𓈒 
 <p align="center">
-<img width="280" height="140" src= "https://files.catbox.moe/t51sgb.png" />
+<img width="280" height="170" src="https://files.catbox.moe/t51sgb.png" />
 
 <p align="center">
   
 <p align="center">
-  lais ⠀　 (✚𓈒 ᴗ)　 ⠀<img width="30" height="20" src="https://github.com/user-attachments/assets/e25b9bbd-b347-4dc3-a3b6-2e77be7d72b6" /> <img width="30" height="20" src="https://github.com/user-attachments/assets/e83a38b6-f0eb-449f-ad46-669f02837895" />
+  lais ⠀　 (✚𓈒 ᴗ)　 ⠀<img width="30" height="20" src="https://github.com/user-attachments/assets/3c045f62-2fb3-48f0-a53c-efc0c1e36f7b" />
 
- 
-<p align="center">
-  she  ⠀　(ᐢ ܸ. .ܸ ᐢ)♡  ⠀⠀ <img width="30" height="20" src="https://files.catbox.moe/5fejox.webp" /> ⠀⠀ 𖥨 ⠀⠀ ( ⠀　  they ⠀　  )  ⠀🧁⠀ ⚢ 
+
+ <p align="center">
+  she  ⠀　(ᐢ ܸ. .ܸ ᐢ)♡  ⠀⠀ <img width="30" height="20" src="https://github.com/user-attachments/assets/2704c775-a5fa-4024-bd33-2dc208ac1eee" /> ⠀⠀ 𖥨 ⠀⠀ ( ⠀　  they ⠀　  )  ⠀🧁⠀ ⚢ 
 
