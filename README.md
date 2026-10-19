@@ -1,2 +1,4 @@
 <p align="center">
-<img width="250" height="100" src= "https://files.catbox.moe/t51sgb.png" />
+˖        ˚      ♩♩♩     𓈒  𓈒  𓈒 
+<p align="center">
+<img width="250" height="120" src= "https://files.catbox.moe/t51sgb.png" />
