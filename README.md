@@ -10,5 +10,5 @@
 
  
 <p align="center">
-  she  ⠀　(ᐢ ܸ. .ܸ ᐢ)♡  ⠀⠀ <img width="30" height="20" src="https://github.com/user-attachments/assets/ba608617-536c-472e-a6c4-284609cb63e9" /> ⠀⠀ 𖥨 ⠀⠀ ( ⠀　  they ⠀　  )  ⠀🧁⠀ ⚢ 
+  she  ⠀　(ᐢ ܸ. .ܸ ᐢ)♡  ⠀⠀ <img width="30" height="20" src="https://files.catbox.moe/5fejox.webp" /> ⠀⠀ 𖥨 ⠀⠀ ( ⠀　  they ⠀　  )  ⠀🧁⠀ ⚢ 
 
