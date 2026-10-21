@@ -1,5 +1,5 @@
 
- 
+
 <p align="center">
 ˖        ˚      ♩♩♩     𓈒  𓈒  𓈒 
 <p align="center">
@@ -13,8 +13,6 @@
 
 
  <p align="center">
-  she  ⠀　(ᐢ ܸ. .ܸ ᐢ)♡  ⠀⠀ <img width="30" height="20" src="https://files.catbox.moe/bkjazw.webp"/> ⠀⠀ 𖥨 ⠀⠀ ( ⠀　  they ⠀　  )  ⠀🧁⠀ ⚢ 
-       <p align="center"><img width="30" height="20" src="https://files.catbox.moe/lnz2fq.webp"/>      dni basic criteria           
- <p align="center">
+  she  ⠀　(ᐢ ܸ. .ܸ ᐢ)♡  ⠀⠀ <img width="30" height="30" src="https://files.catbox.moe/zz6exa.webp"/> ⠀⠀ 𖥨 ⠀⠀ ( ⠀　  they ⠀　  )  ⠀🧁⠀ ⚢ 
 
 
